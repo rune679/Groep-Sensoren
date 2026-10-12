@@ -1,3 +1,0 @@
-jef
-Ensar
-Brent
